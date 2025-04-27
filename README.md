@@ -6,4 +6,33 @@
 ✅🤖 EA Forex
 
 Download 👇
+TELEGRAM GRUP
 https://t.me/bullvsbearcombiner
+
+YOUTUBE
+
+CONFIGURE COMBINER OB FX
+PT:
+https://youtu.be/cqvcHl5NN7Y
+EN:
+https://youtu.be/ezeReFgfYME
+
+CONFIGURE FOREX
+PT:
+https://youtu.be/v0ufnoL0foM
+EN:
+https://youtu.be/IHTDLf6j6Nk
+
+CONFIGURE TELEGRAM
+PT:
+https://youtu.be/nTzB-6wB_DQ
+EN:
+https://youtu.be/Da3Pkq1Yw2E
+
+CONFIGURE X-BOT
+PT:
+https://youtu.be/UdBKLFUsAlA
+EN:
+https://youtu.be/8Whd9WkqrjY
+
+
